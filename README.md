@@ -39,16 +39,6 @@ I'm an Electrical and Electronics Engineering student passionate about Embedded 
 
 ---
 
-## 🤝 Organizations
-
-- **National Service Scheme (NSS), Govt. Polytechnic Srikakulam**  
-  Participated in various social service activities and campus drives.
-
-- **AS Raja Voluntary Blood Bank, Visakhapatnam**  
-  Active member contributing to blood donation awareness and volunteer events.
-
----
-
 ## 📫 Connect with Me
 
 - 📧 Email: shamsheerali31@gmail.com  
